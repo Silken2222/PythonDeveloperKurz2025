@@ -1,0 +1,1 @@
+# PythonDeveloperKurz2025
